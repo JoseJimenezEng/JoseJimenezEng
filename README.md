@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JoseJimenezEng
+- 👋 Hi, I’m Jose David Jimenez Leon @JoseJimenezEng
 - 👀 I’m interested in electronics, web design and computer systems
 - 🌱 I’m currently studying electronics and computers engineering
 - 💞️ I’m looking to work on different personal and professional projects 
