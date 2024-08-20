@@ -4,6 +4,7 @@
 - 💞️ I’m looking to work on different personal and professional projects 
 - 📫 How to reach me jjmarts1201@gmail.com - Whatsapp: +57 3028571257
 - 🥋 Judo guy.
+
 ![image](https://github.com/JoseJimenezEng/JoseJimenezEng/assets/142053869/f6b38772-0ece-478d-a74b-0d74c67fa83d)
 
 <!---
